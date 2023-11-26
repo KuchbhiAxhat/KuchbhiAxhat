@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @KuchbhiAxhat
+- 👋 Hi, I’m Axhat,
 <img src="https://akm-img-a-in.tosshub.com/indiatoday/styles/medium_crop_simple/public/2023-08/cheems1.png?VersionId=wF.CKMoNqUMLlBrxWDWr94QX8xvp_LKj">
 
 <!---
